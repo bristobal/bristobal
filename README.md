@@ -1,2 +1,3 @@
 # Cristobal Briones
-## _Ingeniero Comercial - Socio en Kübyte Labs_
+## _Data Scientist - Partner @ Kübyte Labs_
+Currently based in Santiago, CL 🇨🇱
