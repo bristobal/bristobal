@@ -1,3 +1,3 @@
 # Cristobal Briones
-## _Data Scientist - Partner @ Kübyte Labs_
+## _Data Scientist - Co Founder @ Kübyte Labs_
 Currently based in Santiago, CL 🇨🇱
